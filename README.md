@@ -1,2 +1,2 @@
 # sample
-to code
+to sleep and to learn
